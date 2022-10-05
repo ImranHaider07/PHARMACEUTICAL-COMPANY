@@ -1,0 +1,2 @@
+# PHARMACEUTICAL-COMPANY
+Internship report
